@@ -19,8 +19,8 @@ M.Tech Computer Science student at NIT Manipur and ML researcher specializing in
 
 **National Institute of Technology, Manipur**  
 M.Tech in Computer Science & Engineering  
-August 2024 – Present  
-CGPA: 8.66/10
+August 2024 – May 2026  
+CGPA: 8.74/10
 
 **The Neotia University, Kolkata**  
 B.Tech in Computer Science & Engineering – Data Analytics  
